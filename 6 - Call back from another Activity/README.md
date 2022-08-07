@@ -1,1 +1,1 @@
-# [View Video](https://youtu.be/YOYS3Sys1sg).
+# [Watch Video](https://youtu.be/YOYS3Sys1sg).

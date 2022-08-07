@@ -1,4 +1,4 @@
-# [View Video](https://youtu.be/K87R_AUbPcQ).
+# [Watch Video](https://youtu.be/K87R_AUbPcQ)
 
 ![Screen](ExplicitIntentScreenA.png)
 ![Screen](ExplicitIntentScreenB.png)

@@ -1,3 +1,1 @@
-# [View Video](https://youtu.be/BVdWrXJaHkU).
-
-![Screen](screen.PNG)
+# [Watch Video](https://youtu.be/QCa59_VsK5g)

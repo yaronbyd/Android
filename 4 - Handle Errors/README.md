@@ -1,1 +1,1 @@
-# [View Video](https://youtu.be/lwSkKIQ0shk).
+# [Watch Video](https://youtu.be/lwSkKIQ0shk)
